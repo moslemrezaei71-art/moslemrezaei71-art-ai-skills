@@ -1,1 +1,0 @@
-# moslemrezaei71-art-ai-skills
